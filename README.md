@@ -1,0 +1,1 @@
+# AOMORIKE.github.jp
